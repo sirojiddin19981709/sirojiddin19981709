@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Samandar Usmonov
+- 👀 I’m interested in IT
+- 🌱 I’m currently learning IT
+- ⚡ Fun fact: I'm pupil in Rishtan specialized school
